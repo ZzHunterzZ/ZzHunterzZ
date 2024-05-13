@@ -10,7 +10,7 @@
 
 📫 You can reach me on Instagram (braulio_hibrido_) [https://www.instagram.com/braulio_hibrido_/] or on Facebook (Braulio Híbrido) [https://www.facebook.com/braulio.santos.750].
 
-😄 Pronouns: He/my/our
+😄 Pronouns: He/He
 
 ⚡ Fun fact: The world today runs in milliseconds, so learn as quickly as possible.
 
